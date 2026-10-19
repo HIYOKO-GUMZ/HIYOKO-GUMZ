@@ -1,4 +1,4 @@
-🎨 Hi there! Welcome to my github!
+🎨 Hi there! Welcome to my github! I follow back ! (expect companies and professional accs ... )
 
 You can call me Aubrey, or the characters i often play as, idm!
 
